@@ -1,0 +1,2 @@
+# bukusaya
+tugas pertama
